@@ -16,6 +16,7 @@
 
 Если я подхожу вашей команде, контакты для связи:
 
-What's up: +7(902) 256 - 000 - 5 ***
-Telegram: @ms_polovnikov ***
-Email: mishapolovnikov@gmail.com ***
+What's up: +7(902) 256 - 000 - 5 
+Telegram: @ms_polovnikov
+Email: mishapolovnikov@gmail.com 
+
